@@ -14,7 +14,6 @@
 [LinkedIn](https://linkedin.com/in/kabindra-panta-771237339) • [Facebook](https://facebook.com/kabindra.panta.235533)
 
 ---
----
 
 ### 👁️ Profile Views:
 ![Visitor Count](https://komarev.com/ghpvc/?username=Kpanta1571&label=Profile%20views&color=0e75b6&style=flat)
